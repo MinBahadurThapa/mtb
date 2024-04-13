@@ -1,4 +1,4 @@
-Product Page: https://wwww.mtb.com.np/
+Product Page: https://mtb.com.np/
 
 Credits:
 
